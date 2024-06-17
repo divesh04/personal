@@ -1,1 +1,1 @@
-# divesh04.github.io/personal
+# divesh04.github.io
